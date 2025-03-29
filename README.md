@@ -1,2 +1,2 @@
 # Lyrics-Display 
-Kamu cantik Kamu Baik
+Kamu cantik Kamu Baik💐✨
