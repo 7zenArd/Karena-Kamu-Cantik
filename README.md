@@ -1,2 +1,2 @@
-# Karena-Kamu-Cantik
+# Lyrics-Main
 Kamu cantik Kamu Baik💐✨
